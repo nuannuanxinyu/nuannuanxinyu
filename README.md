@@ -1,1 +1,1 @@
-maid in china
+Made in China
